@@ -1,4 +1,4 @@
-
+Free upd for arceus x executor - god and esp brings you the best free scripts for arceus x executor, featuring god and esp. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
